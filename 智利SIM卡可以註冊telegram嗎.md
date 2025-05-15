@@ -1,4 +1,4 @@
-# 智利SIM卡可以注册Telegram吗？[[TG💪+ @donk5151](https://t.me/s/donk5151)]
+# 智利SIM卡可以注册Telegram吗？[[TG💪+ @esim1088](https://t.me/s/esim1088)]
 
 大家好，今天咱们来聊聊一个很多人都关心的问题——智利的SIM卡能不能用来注册Telegram。这个问题听起来可能很简单，但实际上涉及到不少细节和技巧。如果你正在智利旅行、工作或者生活，那么这篇文章可能会对你有所帮助。
 
@@ -40,4 +40,4 @@
 
 最后，再次强调一下，如果你有任何疑问或需要进一步的帮助，可以随时联系我或者加入我们的讨论群组。大家一起交流经验，共同进步！
 
-[[TG💪+ @donk5151](https://t.me/s/donk5151) ![Image](https://i.postimg.cc/rwNCRYN7/Snipaste-2025-04-30-17-27-05.png)]
+[[TG💪+ @esim1088](https://t.me/s/esim1088) ![Image](https://i.postimg.cc/4NQfJmqS/Snipaste-2025-05-13-00-14-12.png)]
