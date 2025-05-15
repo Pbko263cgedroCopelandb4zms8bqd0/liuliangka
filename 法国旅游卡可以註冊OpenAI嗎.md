@@ -1,4 +1,4 @@
-**法国旅游卡可以註冊OpenAI嗎[[TG💪+ @donk5151](https://t.me/s/donk5151)]**
+**法国旅游卡可以註冊OpenAI嗎[[TG💪+ @esim1088](https://t.me/s/esim1088)]**
 
 嗨，大家好！今天咱们来聊聊一个很多人都会好奇的问题——法国旅游卡能不能注册OpenAI？这个问题听起来有点复杂，但实际上涉及到几个关键点，比如什么是法国旅游卡、什么是OpenAI，以及两者之间的关系。别担心，我会尽量用简单易懂的方式给大家讲清楚。
 
@@ -20,4 +20,4 @@
 
 好了，关于“法国旅游卡能不能注册OpenAI”这个问题，今天就聊到这里吧。希望我的解答对你有所帮助。如果你还有其他疑问，欢迎随时留言讨论！祝大家都有一个难忘的法国之旅，收获满满的美好回忆！
 
-[[TG💪+ @donk5151](https://t.me/s/donk5151) ![Image](https://i.postimg.cc/rwNCRYN7/Snipaste-2025-04-30-17-27-05.png)]
+[[TG💪+ @esim1088](https://t.me/s/esim1088) ![Image](https://i.postimg.cc/4NQfJmqS/Snipaste-2025-05-13-00-14-12.png)]
