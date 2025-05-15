@@ -1,4 +1,4 @@
-# 泰国5G卡是否能注册Telegram？[[TG💪+ @donk5151](https://t.me/s/donk5151)]
+# 泰国5G卡是否能注册Telegram？[[TG💪+ @esim1088](https://t.me/s/esim1088)]
 
 在当今数字化时代，社交媒体和即时通讯工具已经成为我们日常生活的重要组成部分。无论是与朋友聊天、分享生活点滴，还是进行商务沟通，这些平台都为我们提供了极大的便利。而在众多的即时通讯软件中，Telegram以其强大的功能和高度的安全性赢得了全球用户的青睐。
 
@@ -36,4 +36,4 @@
 
 最后提醒大家一句：科技发展日新月异，希望大家能够紧跟潮流步伐，在享受便捷服务的同时也要注意合理安排时间，避免沉迷于虚拟世界而忽略了现实生活中的美好时光呢！
 
-[[TG💪+ @donk5151](https://t.me/s/donk5151) ![Image](https://i.postimg.cc/rwNCRYN7/Snipaste-2025-04-30-17-27-05.png)]
+[[TG💪+ @esim1088](https://t.me/s/esim1088) ![Image](https://i.postimg.cc/4NQfJmqS/Snipaste-2025-05-13-00-14-12.png)]

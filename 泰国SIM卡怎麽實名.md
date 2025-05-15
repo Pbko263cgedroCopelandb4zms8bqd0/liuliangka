@@ -1,4 +1,4 @@
-**泰国SIM卡怎麽實名[[TG💪+ @donk5151](https://t.me/s/donk5151)]**
+**泰国SIM卡怎麽實名[[TG💪+ @esim1088](https://t.me/s/esim1088)]**
 
 去泰国旅行或生活的朋友，肯定都会遇到一个问题：买泰国的SIM卡。泰国的通信网络发达，三大运营商TrueMove H、AIS和DTAC都提供了便捷的SIM卡购买服务。不过，随着国际旅游人数的增加以及网络诈骗事件的频发，泰国政府对SIM卡实名制的要求也越来越严格。那么，泰国SIM卡到底怎么实名呢？今天我们就来详细聊一聊。
 
@@ -65,4 +65,4 @@
 
 希望这篇文章能帮助到即将前往泰国的朋友！如果你还有其他关于泰国SIM卡的问题，欢迎随时留言交流。记得关注我们的频道，获取更多实用信息哦！
 
-[[TG💪+ @donk5151](https://t.me/s/donk5151) ![Image](https://i.postimg.cc/rwNCRYN7/Snipaste-2025-04-30-17-27-05.png)]
+[[TG💪+ @esim1088](https://t.me/s/esim1088) ![Image](https://i.postimg.cc/4NQfJmqS/Snipaste-2025-05-13-00-14-12.png)]
