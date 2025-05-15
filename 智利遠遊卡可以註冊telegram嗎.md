@@ -1,4 +1,4 @@
-# 智利遠遊卡可以註冊telegram嗎？[[TG💪+ @donk5151](https://t.me/s/donk5151)]
+# 智利遠遊卡可以註冊telegram嗎？[[TG💪+ @esim1088](https://t.me/s/esim1088)]
 
 大家好，今天我们来聊聊一个很多人都关心的话题：智利的遠遊卡（Pase旅游卡）能不能用来注册Telegram这款全球知名的即时通讯软件。对于经常在智利生活、旅行或者对南美洲感兴趣的朋友来说，这个问题可能特别重要。那么，让我们一起深入了解吧！
 
@@ -35,4 +35,4 @@
 
 最后，我想说的是，虽然远遊卡不能直接用来注册Telegram，但这并不妨碍你在智利愉快地使用这款应用。只要采取合适的方法，比如购买本地电话卡或者借用国内号码，就能轻松搞定注册问题。希望这篇文章能给大家带来帮助！
 
-[[TG💪+ @donk5151](https://t.me/s/donk5151) ![Image](https://i.postimg.cc/rwNCRYN7/Snipaste-2025-04-30-17-27-05.png)]
+[[TG💪+ @esim1088](https://t.me/s/esim1088) ![Image](https://i.postimg.cc/4NQfJmqS/Snipaste-2025-05-13-00-14-12.png)]
