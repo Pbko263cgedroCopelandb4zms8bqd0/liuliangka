@@ -1,4 +1,4 @@
-**法国手機卡可以註冊telegram嗎？[[TG💪+ @donk5151](https://t.me/s/donk5151)]**
+**法国手機卡可以註冊telegram嗎？[[TG💪+ @esim1088](https://t.me/s/esim1088)]**
 
 在当今数字化时代，社交媒体和即时通讯工具已经成为了人们日常生活中不可或缺的一部分。而在众多通讯应用中，Telegram以其强大的功能、加密的安全性和简洁的界面深受全球用户的喜爱。然而，对于生活在法国的朋友来说，是否可以用当地的手机卡注册Telegram呢？这个问题常常让不少用户感到困惑。
 
@@ -28,4 +28,4 @@
 
 最后提醒大家一句：网络安全无小事！无论使用哪种通讯工具，请务必提高警惕，避免泄露个人敏感信息。只有这样，我们才能真正享受到科技带来的便捷与快乐。
 
-[[TG💪+ @donk5151](https://t.me/s/donk5151) ![Image](https://i.postimg.cc/rwNCRYN7/Snipaste-2025-04-30-17-27-05.png)]
+[[TG💪+ @esim1088](https://t.me/s/esim1088) ![Image](https://i.postimg.cc/4NQfJmqS/Snipaste-2025-05-13-00-14-12.png)]

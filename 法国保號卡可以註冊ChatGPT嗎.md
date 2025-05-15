@@ -1,4 +1,4 @@
-**法国保號卡可以註冊ChatGPT嗎？**[[TG💪+ @donk5151](https://t.me/s/donk5151)]
+**法国保號卡可以註冊ChatGPT嗎？**[[TG💪+ @esim1088](https://t.me/s/esim1088)]
 
 大家好！最近有不少朋友在问我，法国的保號卡（Carte de Séjour）能不能用来注册ChatGPT。作为一个经常关注科技动态和生活实用信息的人，我决定来详细解答一下这个问题。
 
@@ -42,4 +42,4 @@
 
 希望这篇文章对你有所帮助！如果你还有其他关于科技、生活等方面的问题，欢迎随时留言讨论。大家一起交流进步，共同探索更多有趣的可能性吧！
 
-[[TG💪+ @donk5151](https://t.me/s/donk5151) ![Image](https://i.postimg.cc/rwNCRYN7/Snipaste-2025-04-30-17-27-05.png)]
+[[TG💪+ @esim1088](https://t.me/s/esim1088) ![Image](https://i.postimg.cc/4NQfJmqS/Snipaste-2025-05-13-00-14-12.png)]
